@@ -3,7 +3,7 @@
 meu nome é Beatriz Niehues
 
 - sou estudante da alura
-- tenho 14 anos
+- tenho 16 anos
 - não sei muito bem mexer aqui
 
 
